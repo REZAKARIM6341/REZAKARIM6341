@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Reza
-- 👀 I’m interested in 
+- 👀 I’m interested in dealing with challenging job
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
